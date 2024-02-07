@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lucaC22
-- 👀 I’m interested in chicks
+- 👀 I’m interested in chicks and gambling
 - 🌱 I’m currently learning chick dominance assert
 - 💞️ I’m looking to collaborate on chick dominion
 - 📫 How to reach me : By chicks
